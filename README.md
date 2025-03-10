@@ -18,6 +18,7 @@ check these cool sites out before interacting with me please! (˶ᵔ ᵕ ᵔ˶)
 
 
 ![](https://i.postimg.cc/pr4Xr27D/67dgnu.png)
+
 ⋆𐙚 ₊ °  𝙼𝚘𝚛𝚎 𝚒𝚗𝚏𝚘𝚛𝚖𝚊𝚝𝚒𝚘𝚗𝚜 !! ![](https://i.imgur.com/SGOZvBZ.gif)
 
 ⟡ I easily get sensitive so please use tone tags <3
