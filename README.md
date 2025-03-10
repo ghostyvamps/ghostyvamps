@@ -4,7 +4,7 @@
 
 ᴍᴇ ᴀɴᴅ ɴɪx ᴛʀᴜꜱᴛ !! ⋆. 𐙚 ˚ `03/09/25` ♡ ![](https://files.catbox.moe/i2kior.gif)
 
-![download](https://github.com/user-attachments/assets/0871ad2a-76b3-4c14-b595-f94cf639ffb0)
+![](https://i.postimg.cc/ZnC5J9fb/58sq0y.png)
 
 
 check these cool sites out before interacting with me please! (˶ᵔ ᵕ ᵔ˶)
@@ -17,7 +17,7 @@ check these cool sites out before interacting with me please! (˶ᵔ ᵕ ᵔ˶)
 
 
 
-![](https://media.tenor.com/CUiPSjhjBTYAAAAm/moon-divider.webp)
+![](https://i.postimg.cc/pr4Xr27D/67dgnu.png)
 
 ⋆𐙚 ₊ °  𝙼𝚘𝚛𝚎 𝚒𝚗𝚏𝚘𝚛𝚖𝚊𝚝𝚒𝚘𝚗𝚜 !! ![](https://i.imgur.com/SGOZvBZ.gif)
 
@@ -47,7 +47,6 @@ That's all thank you for reading ᡣ𐭩 !! ![](https://i.imgur.com/amwFZTx.gif)
 ![](https://blinkies.cafe/b/display/0202-pinterestlogo.gif)![](https://blinkies.cafe/b/display/0200-tumblrlogo.gif)![](https://blinkies.cafe/b/display/0201-twitterlogo.gif)
 
 
-![](https://i.pinimg.com/474x/3f/d6/c7/3fd6c7328ad592e7c333256a3d6cc742.jpg) [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkywcxedvxgneeo25mapb5xez4&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=564e7e&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkywcxedvxgneeo25mapb5xez4&redirect=true)
 
 
 
