@@ -4,7 +4,7 @@
 
 ᴍᴇ ᴀɴᴅ ɴɪx ᴛʀᴜꜱᴛ !! ⋆. 𐙚 ˚ `03/09/25` ♡ ![](https://files.catbox.moe/i2kior.gif)
 
-![](https://i.postimg.cc/ZnC5J9fb/58sq0y.png)
+![](https://i.postimg.cc/ZnC5J9fb/58sq0y.png)![](https://i.postimg.cc/ZnC5J9fb/58sq0y.png)![](https://i.postimg.cc/ZnC5J9fb/58sq0y.png)
 
 
 check these cool sites out before interacting with me please! (˶ᵔ ᵕ ᵔ˶)
@@ -17,7 +17,7 @@ check these cool sites out before interacting with me please! (˶ᵔ ᵕ ᵔ˶)
 
 
 
-![](https://i.postimg.cc/pr4Xr27D/67dgnu.png)
+![](https://i.postimg.cc/pr4Xr27D/67dgnu.png)![](https://i.postimg.cc/pr4Xr27D/67dgnu.png)![](https://i.postimg.cc/pr4Xr27D/67dgnu.png)
 
 ⋆𐙚 ₊ °  𝙼𝚘𝚛𝚎 𝚒𝚗𝚏𝚘𝚛𝚖𝚊𝚝𝚒𝚘𝚗𝚜 !! ![](https://i.imgur.com/SGOZvBZ.gif)
 
@@ -46,7 +46,7 @@ That's all thank you for reading ᡣ𐭩 !! ![](https://i.imgur.com/amwFZTx.gif)
 
 ![](https://blinkies.cafe/b/display/0202-pinterestlogo.gif)![](https://blinkies.cafe/b/display/0200-tumblrlogo.gif)![](https://blinkies.cafe/b/display/0201-twitterlogo.gif)
 
-![](https://i.postimg.cc/3rcwnBRd/3xnucq.png)
+![](https://i.postimg.cc/3rcwnBRd/3xnucq.png)![](https://i.postimg.cc/3rcwnBRd/3xnucq.png)![](https://i.postimg.cc/3rcwnBRd/3xnucq.png)
 
 
 
