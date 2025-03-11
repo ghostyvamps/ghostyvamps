@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=503d7a&style=plastic&label=PROFILE+VISITS) 
 
-![](https://blinkies.cafe/b/blinkiesCafe-rV.gif) ![](https://64.media.tumblr.com/6bb664a97f9e3bfad10e0163a27640d7/ae46331ceb4c5414-4c/s100x200/8f5048290a0d2161d75c6ba2255c8365c0844ad8.gifv)
+![](https://blinkies.cafe/b/blinkiesCafe-rV.gif) ![](https://blinkies.cafe/b/blinkiesCafe-YU.gif)
 
 ![](https://i.pinimg.com/474x/1b/0d/18/1b0d18e15dc961ad83e4da8e8df0c9b4.jpg)
 
