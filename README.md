@@ -1,6 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=503d7a&style=plastic&label=PROFILE+VISITS) 
 
-![](https://blinkies.cafe/b/blinkiesCafe-rV.gif) ![](https://blinkies.cafe/b/blinkiesCafe-YU.gif)
+![blinkiesCafe-WD](https://github.com/user-attachments/assets/3889d9f8-15bb-4848-b314-745c56ebc459) ![blinkiesCafe-h2](https://github.com/user-attachments/assets/760aee7c-fbb2-4384-b340-7120bb9646ba)
+
+
 
 ![](https://i.pinimg.com/474x/1b/0d/18/1b0d18e15dc961ad83e4da8e8df0c9b4.jpg)
 
@@ -19,7 +21,11 @@ check these cool sites out before interacting with me please! (˶ᵔ ᵕ ᵔ˶)
 ![transmasc](https://64.media.tumblr.com/11d7263f28b34e57d74dd9614ef45a0a/f30a91219708cbdc-d6/s100x200/7ca30680fd4db3188a984f3604aff1d98533da4a.gifv)![adult](https://files.catbox.moe/nb7t3c.gif)![taken](https://files.catbox.moe/ai4m8d.gif)![husband](https://files.catbox.moe/bhn4tl.gif)![adhd](https://files.catbox.moe/emyy10.gif)![&didsys](https://64.media.tumblr.com/1e091f168709cae4bd00ad41a59ee1ae/da1c48ae42213abb-18/s75x75_c1/6ef77a074c197b02a358925b9c1e2022df572724.gifv)![gamer](https://files.catbox.moe/ykrla0.gif)![artist](https://files.catbox.moe/2pcvdc.gif)![hugaholic](https://files.catbox.moe/1x2yno.gif)![lovesick](https://files.catbox.moe/7096gb.webp)![passionate](https://files.catbox.moe/4ur83k.gif)![vamp](https://files.catbox.moe/1vsq6l.gif)![vampire](https://files.catbox.moe/2xwvws.gif)![hyper](https://files.catbox.moe/gcu6f5.gif)
 
 
-![](https://blinkies.cafe/b/blinkiesCafe-gz.gif) ![](https://blinkies.cafe/b/blinkiesCafe-kB.gif) ![](https://blinkies.cafe/b/blinkiesCafe-Z3.gif) ![](https://blinkies.cafe/b/blinkiesCafe-yU.gif) ![](https://blinkies.cafe/b/blinkiesCafe-QV.gif)
+![blinkiesCafe-As](https://github.com/user-attachments/assets/87e342fe-d77b-4dad-bb90-11a5ca7852a6) ![blinkiesCafe-aK](https://github.com/user-attachments/assets/413f9670-23fd-4c43-a69a-f95cbae4c957) ![blinkiesCafe-6w](https://github.com/user-attachments/assets/c92b5607-7e84-40ff-9e0c-e2de18edf97c) ![blinkiesCafe-IX](https://github.com/user-attachments/assets/6ee4e17a-c170-476d-9fad-4f39bf4da4d7)
+ ![blinkiesCafe-EJ](https://github.com/user-attachments/assets/4cf0cef2-f5f6-49fb-91fe-eb1128158839)
+
+
+
 
 
 
@@ -47,7 +53,8 @@ check these cool sites out before interacting with me please! (˶ᵔ ᵕ ᵔ˶)
 
 That's all thank you for reading ♡ !! ![](https://i.imgur.com/amwFZTx.gif)
 
-![](https://files.catbox.moe/lh7t02.gif) ![](https://blinkies.cafe/b/blinkiesCafe-e2.gif)
+![](https://files.catbox.moe/lh7t02.gif) ![blinkiesCafe-AV](https://github.com/user-attachments/assets/3e177259-d8d3-404d-ae60-e113592df2b0)
+ 
 
 𝙈𝙤𝙨𝙩𝙡𝙮 𝙘𝙤𝙢𝙢𝙤𝙣𝙡𝙮 𝙛𝙤𝙪𝙣𝙙 𝙞𝙣:
 
