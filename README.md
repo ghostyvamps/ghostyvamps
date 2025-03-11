@@ -37,8 +37,6 @@ check these cool sites out before interacting with me please! (˶ᵔ ᵕ ᵔ˶)
 
 ⟡ I have social anxiety so I might be socially awkward at first but once we get to know each other well, I will feel more comfortable around you!
 
-⟡ I also have depression so please do be careful when you are making suicidal jokes such as "KYS" etc. 
-
 ⟡ My mood changes randomly and I also have anger issue so if my responds sounds dry towards to you, don't worry it's not your fault !! <3
 
 ⟡ SHIPS DNI. PLEASE DO NOT INTERACT, TOUCH, KISS OR CUDDLE W ME UNLESS MY WIFE !! ![](https://external-media.spacehey.net/media/sYynRh9_SsgCDa-xuAXXapz6muYHP4amhKgISk0fnsSk=/https://i.ibb.co/VJrT5Pq/Tumblr-l-341807046420980.gif)  Other platonic cuddles are fine though!
