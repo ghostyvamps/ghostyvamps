@@ -13,7 +13,7 @@
 
 check these cool sites out before interacting with me please! (˶ᵔ ᵕ ᵔ˶)
 
-⟡ [strawpage](https://akirasite.straw.page) + [carrd](https://ghostlymarriott.carrd.co/) ⟡
+⟡ [strawpage](https://akirasite.straw.page) & [carrd](https://ghostlymarriott.carrd.co/) ⟡
 
 ![](https://64.media.tumblr.com/f250bf024e672d17ecbeccc9dec9c1b4/da3b405fc4e62964-b3/s75x75_c1/7cb6c59ca3450056786be1b360a7919fd097ef1d.pnj)![](https://64.media.tumblr.com/e53b181d8358e6fc99cdb7c36fcf38da/da3b405fc4e62964-c2/s75x75_c1/587a878c8b2886ac3a0db84584d4b9004fb21078.pnj)![](https://64.media.tumblr.com/73d3d06b4f0f7356d8d82cbce9ef291b/6a22316b5f6d944e-84/s75x75_c1/f0b7913af7da631d72643f54725d500bc0ddab28.pnj)![](https://64.media.tumblr.com/cc48fef25ebf61afa9f6a119eb1571ae/6a22316b5f6d944e-7e/s75x75_c1/2f4a7cc08a40afe124240229a94a3579ad8fe8a7.pnj)![](https://64.media.tumblr.com/a7f3ccf4c2bb3d1bd41181adc0f97866/6a22316b5f6d944e-4c/s75x75_c1/b56a577007cf9f4c7f6d56abfbe578b45f7e5b89.pnj)
 
