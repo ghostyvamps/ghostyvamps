@@ -39,7 +39,7 @@ check these cool sites out before interacting with me please! (˶ᵔ ᵕ ᵔ˶)
 
 ⟡ My mood changes randomly and I also have anger issue so if my responds sounds dry towards to you, don't worry it's not your fault !! <3
 
-⟡ SHIPS DNI. PLEASE DO NOT INTERACT, TOUCH, KISS OR CUDDLE W ME UNLESS MY WIFE !! ![](https://external-media.spacehey.net/media/sYynRh9_SsgCDa-xuAXXapz6muYHP4amhKgISk0fnsSk=/https://i.ibb.co/VJrT5Pq/Tumblr-l-341807046420980.gif)  Other platonic cuddles are fine though!
+⟡ SHIPS DNIUF. PLEASE DO NOT INTERACT, TOUCH, KISS OR CUDDLE W ME UNLESS I ALLOW YOU !! ![](https://external-media.spacehey.net/media/sYynRh9_SsgCDa-xuAXXapz6muYHP4amhKgISk0fnsSk=/https://i.ibb.co/VJrT5Pq/Tumblr-l-341807046420980.gif)  Other platonic cuddles are fine though!
 
 ⟡ RP DNI TOO. PLEASE DO NOT RP W ME !! DO NOT INVITE ME TO RP PARTY EITHER IM NOT INTERESTED. JUST BECAUSE I HAVE SUPPORTER ROLE DOESN'T MEAN I WILL HELP WITH YOUR PARTY LIMIT.
 
