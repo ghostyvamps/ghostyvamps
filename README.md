@@ -1,5 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=503d7a&style=plastic&label=PROFILE+VISITS) 
 
+**PLEASE READ B4 YOU INTERACT W ME !!**
+
 ![blinkiesCafe-EH](https://github.com/user-attachments/assets/89ee19f1-02a8-43f6-86c2-c5c4b8a0e9a2) ![blinkiesCafe-vW](https://github.com/user-attachments/assets/f92e0a8a-3d98-4a95-b36e-40fcde0edab6) ![blinkiesCafe-WD](https://github.com/user-attachments/assets/15ddd7c3-998f-4d8c-aeef-02002be809e5)
 
 
