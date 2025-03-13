@@ -9,7 +9,7 @@
 
 ![](https://i.pinimg.com/474x/5d/79/c4/5d79c4e6d76529088ef4f60389662d19.jpg) 
 
-ᴍᴇ ᴀɴᴅ ɴɪx ᴛʀᴜꜱᴛ !! ♡ `03/09/25` 
+ᴍᴇ ᴀɴᴅ ɴɪx ᴛʀᴜꜱᴛ !! ♡ `03/09/25`  ![](https://files.catbox.moe/ne5cqk.gif)
 
 "Then the wonder of it all is that you just don't realize how much I love you."
 
@@ -58,6 +58,8 @@
 ![](https://64.media.tumblr.com/4f548d1e31010d0d41a90dff81b9492c/68cc353ae6bf65db-e4/s250x400/c8fa596659b2d840e63d08cc4e653343b16628e0.gifv) 
 
 That's all, thank you for reading !! ♡ ︎ ![](https://i.imgur.com/pubZLJw.gif)
+
+![](https://files.catbox.moe/sxpn4n.gif) only real ones know this banger
 
 ![](https://i.postimg.cc/7YJrbwTz/IMG-9349.png)
 
