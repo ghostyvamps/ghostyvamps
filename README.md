@@ -49,9 +49,11 @@
 
 ✘ COPYCATS / COSPLAY SKINS STEALERS. THIS INCLUDES TUTORIAL SKINS AS WELL. 
 
-✘ Not much of DNI, just don't be weird in general. 
+✘ Not much of DNI, just don't be weird in general.
 
-![](https://64.media.tumblr.com/4f548d1e31010d0d41a90dff81b9492c/68cc353ae6bf65db-e4/s250x400/c8fa596659b2d840e63d08cc4e653343b16628e0.gifv)
+![](https://media.tenor.com/mfoUH0D5xhUAAAAm/musedash-live2d.webp) + Especially if you are those toxic shippers that doesn't support or are antis of other ships. AND THOSE TYPES OF TROLLERS. Please just leave me alone instead of attacking me and starting a drama.
+
+![](https://64.media.tumblr.com/4f548d1e31010d0d41a90dff81b9492c/68cc353ae6bf65db-e4/s250x400/c8fa596659b2d840e63d08cc4e653343b16628e0.gifv) 
 
 That's all, thank you for reading !! ♡ ︎ ![](https://i.imgur.com/pubZLJw.gif)
 
