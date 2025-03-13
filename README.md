@@ -52,11 +52,7 @@ check these cool sites out before interacting with me please! (˶ᵔ ᵕ ᵔ˶)
 That's all thank you for reading ♡ !! ![](https://i.imgur.com/amwFZTx.gif)
 
 ![](https://files.catbox.moe/lh7t02.gif) ![blinkiesCafe-AV](https://github.com/user-attachments/assets/3e177259-d8d3-404d-ae60-e113592df2b0)
- 
 
-𝙈𝙤𝙨𝙩𝙡𝙮 𝙘𝙤𝙢𝙢𝙤𝙣𝙡𝙮 𝙛𝙤𝙪𝙣𝙙 𝙞𝙣:
-
-![](https://blinkies.cafe/b/display/0202-pinterestlogo.gif)![](https://blinkies.cafe/b/display/0200-tumblrlogo.gif)![](https://blinkies.cafe/b/display/0201-twitterlogo.gif)
 
 ![](https://i.postimg.cc/3rcwnBRd/3xnucq.png)
 
