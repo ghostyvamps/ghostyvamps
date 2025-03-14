@@ -1,4 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=503d7a&style=plastic&label=PROFILE+VISITS) 
 
-WIP
-reworking on this again. (soon)
+imagine reworking on this again couldnt be me
+
+![](https://media.tenor.com/vRoscp_MBF8AAAAM/blade-blade-hsr.gif)
