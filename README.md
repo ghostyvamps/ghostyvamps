@@ -4,6 +4,10 @@
 
 ![](https://media.tenor.com/LDUb6FPK4ugAAAAM/sword-title.gif)
 
+![blinkiesCafe-Ob](https://github.com/user-attachments/assets/9a6f9297-a445-46cb-9380-e07250d05cbe) ![blinkiesCafe-YG](https://github.com/user-attachments/assets/a9f465c5-042a-419f-b9af-1da36671bae0)
+
+
+
 ᴄʜᴇᴄᴋ ᴛʜᴇꜱᴇ ᴄᴏᴏʟ ᴡᴇʙꜱɪᴛᴇꜱ ᴏᴜᴛ ᵔᴗᵔ
 
 ♡ [strawpage](https://akirasite.straw.page) + [carrd](https://ghostlymarriott.carrd.co/) ♡
