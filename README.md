@@ -16,6 +16,8 @@
 
 ![](https://media.tenor.com/Z9BwOIw8mswAAAAm/blade-honkai-star-rail-stellaron-hunters.webp)
 
+![](https://media.tenor.com/7f4Qv2zVRiEAAAAm/divider-black.webp)
+
 𝘽𝙔𝙁 *!!*  ![](https://i.imgur.com/l3MStv2.gif)
 
 ☆ I'm a system ,, I have DID & ADHD 
@@ -34,6 +36,8 @@
 
 ![](https://media.tenor.com/CEHJVEdarWUAAAAm/blade-honkai-star-rail.webp)
 
+![](https://media.tenor.com/7f4Qv2zVRiEAAAAm/divider-black.webp)
+
 
 𝘿𝙉𝙄 *!!* ![](https://files.catbox.moe/djzu8m.gif)
 
@@ -46,3 +50,8 @@
 ✘ Basic dni criteria. I don't have much DNI as long you're not weird in general.
 
 ![](https://media.tenor.com/oMSQ-BrV1osAAAAm/blade-honkai-star-rail.webp)
+
+![](https://media.tenor.com/7f4Qv2zVRiEAAAAm/divider-black.webp)
+
+
+Thank you for reading !! ^v^ ![](https://media.tenor.com/4NUTt5k5T6YAAAAm/hsr-honkai-star-rail.webp)
