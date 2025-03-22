@@ -41,7 +41,7 @@
 
 𝘿𝙉𝙄 *!!* ![](https://files.catbox.moe/djzu8m.gif)
 
-✘ ROLEPLAYERS. PLEASE DO NOT INVITE ME TO ANY RP PARTY I'M NOT INTERESTED. JUST BECAUSE I HAVE A SUPPORTER ROLE DOESNT MEAN I WILL HELP YOU.
+✘ ROLEPLAYERS. PLEASE DO NOT INVITE ME TO ANY RP PARTY I'M NOT INTERESTED. JUST BECAUSE I HAVE A SUPPORTER ROLE DOESNT MEAN I WILL HELP YOU FOR YOUR PARTY SPACE LIMIT.
 
 ✘ Toxic shippers that doesn't respect or accept other ships. I'm an any shippers so I don't mind as long it's legal. Don't attack me just because I don't like your ship. 
 
