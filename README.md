@@ -30,9 +30,12 @@
 
 ☆ I have anger issue so if my responds are dry, that means I'm not in mood. 
 
-☆ Have common sense. Please respect my opinions& boundaries instead of starting a drama. 
+☆ Have common sense. Please respect my opinions & boundaries instead of starting a drama. 
 
 ☆ Please don't randomly send me friend requests unless we've interacted or I know you.
+
+☆ If I'm sleeping in game, that means I'm AFK. Just whisper to me if you want to interact unelss I stated in my name otherwise. (example: DNIUF/WIFE)
+
 
 ![](https://media.tenor.com/CEHJVEdarWUAAAAm/blade-honkai-star-rail.webp)
 
