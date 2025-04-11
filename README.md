@@ -34,7 +34,7 @@
 
 ☆ Please don't randomly send me friend requests unless we've interacted or I know you.
 
-☆ If I'm sleeping in game, that means I'm AFK. Just whisper to me if you want to interact unelss I stated in my name otherwise. (example: DNIUF/WIFE)
+☆ If I'm sleeping in game, that means I'm AFK. Just whisper to me if you want to interact unelss I stated in my name otherwise. (example: DNIUF)
 
 
 ![](https://media.tenor.com/CEHJVEdarWUAAAAm/blade-honkai-star-rail.webp)
