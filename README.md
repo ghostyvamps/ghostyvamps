@@ -6,5 +6,5 @@
 
 ♡ [strawpage](https://akirasite.straw.page) + [carrd](https://ghostlymarriott.carrd.co/) ♡
 
-⋆𐙚 ₊‎ ‎  he/vamp ⟡ adult ⟡ transmasc ⟡ bisexual ⟡  taken <3  ⟡ traditional & digital artist ⟡ gamer ⟡ gif maker ⟡ layout maker ⟡ multishipper
+⋆𐙚 ₊‎ ‎  he/vamp/ask ⟡ adult ⟡ transmasc ⟡ bisexual ⟡  taken <3  ⟡ traditional & digital artist ⟡ gamer ⟡ gif maker ⟡ layout maker ⟡ multishipper
 
