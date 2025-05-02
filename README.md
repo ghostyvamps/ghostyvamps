@@ -4,6 +4,8 @@
 
 ♡ [strawpage](https://akirasite.straw.page) + [carrd](https://ghostlymarriott.carrd.co/) ♡
 
-⋆𐙚 ₊‎ ‎  he/vamp/ask ⟡ adult ⟡ transmasc ⟡ bisexual ⟡  taken <3  ⟡ traditional & digital artist ⟡ gamer ⟡ gif maker ⟡ layout maker ⟡ emoji/pixel maker ⟡ multishipper 
+⋆𐙚 ₊‎ ‎  he/vamp/ask ⟡ adult ⟡ transmasc ⟡ bisexual ⟡  taken < **C** 3  ⟡ traditional & digital artist ⟡ gamer ⟡ gif maker ⟡ multishipper 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkywcxedvxgneeo25mapb5xez4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+![image-removebg-preview (1)](https://github.com/user-attachments/assets/b8d67a00-635e-4d0b-96b0-9536cf01c4e6)
+
