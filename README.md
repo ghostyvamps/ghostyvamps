@@ -6,7 +6,8 @@
 
 ⋆𐙚 ₊‎ ‎  he/vamp/ask ⟡ adult ⟡ transmasc ⟡ bisexual ⟡  taken < **C** 3  ⟡ traditional & digital artist ⟡ gamer ⟡ multishipper 
 
-FEEL FREE TO INTERACT ME ANYTIME !! I DON'T BITE :3 PLEASE I NEED FRIENDS 💔
+C+H & INT any !! FEEL FREE TO INTERACT ME ANYTIME !! I DON'T BITE :3 PLEASE I NEED FRIENDS 💔 ☆ sometimes off-tab so pls w2i if you see me sleeping in the game ^_^ ☆ Do not copy my skins ,, ask b4 taking inspo
+
 
 
 ![image-removebg-preview (1)](https://github.com/user-attachments/assets/b8d67a00-635e-4d0b-96b0-9536cf01c4e6)
