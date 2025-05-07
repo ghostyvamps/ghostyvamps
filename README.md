@@ -8,4 +8,6 @@ C+H & INT any !! FEEL FREE TO INTERACT ME ANYTIME !! I DON'T BITE :3 PLEASE I NE
 
 
 
-![download (1)](https://github.com/user-attachments/assets/ab72bca7-a21f-4a8a-9e8a-25ac9e5070de)
+![download (1)](https://github.com/user-attachments/assets/1a840863-09f1-4883-adc5-c946ae60a249)
+
+
