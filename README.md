@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=503d7a&style=plastic&label=PROFILE+VISITS) 
 
- draw on my [strawpage](https://akirasite.straw.page) pretty please!! ♡
+ draw on my [strawpage](https://simp4thad.straw.page) pretty please!! ♡
 
 ⋆𐙚 ₊‎ ‎  he/vamp/ask ⟡ adult ⟡ transmasc ⟡ bisexual ⟡ taken <3 ⟡ traditional & digital artist ⟡ gamer ⟡ multishipper 
 
