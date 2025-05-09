@@ -1,5 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=503d7a&style=plastic&label=PROFILE+VISITS) 
 
+![](https://blinkies.cafe/b/display/0026-iheart2.gif)
+
  draw on my [strawpage](https://simp4thad.straw.page) pretty please!! ♡
 
 ⋆𐙚 ₊‎ ‎  he/vamp/ask ⟡ adult ⟡ transmasc ⟡ bisexual ⟡ taken <3 ⟡ traditional & digital artist ⟡ gamer ⟡ multishipper 
