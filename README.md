@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=503d7a&style=plastic&label=PROFILE+VISITS) 
 
-![](https://blinkies.cafe/b/display/0026-iheart2.gif)
+![](https://blinkies.cafe/b/display/0026-iheart2.gif) ![blinkiesCafe-BC](https://github.com/user-attachments/assets/0bef71c9-873f-4e7b-869f-dadb43ff09ed)
+
 
  draw on my [strawpage](https://simp4thad.straw.page) pretty please!! ♡
 
