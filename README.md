@@ -2,7 +2,7 @@
 
 
 
-click here for my [strawpage](https://ghostyvamps.straw.page) ♡
+click for my [strawpage](https://ghostyvamps.straw.page) ♡
 
 ⋆𐙚 ₊‎ ‎  he/vamp/ask ⟡ adult ⟡ transmasc ⟡ bisexual ⟡ taken <3 ⟡ digital artist ⟡ gamer ⟡ multishipper 
 
