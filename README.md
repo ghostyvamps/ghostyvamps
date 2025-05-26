@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=503d7a&style=plastic&label=PROFILE+VISITS) 
 
 
-⋆𐙚 ₊‎ ‎  he/vamp/ask ⟡ adult ⟡ transmasc ⟡ bisexual ⟡ taken <3 ⟡ digital artist ⟡ gamer ⟡ multishipper 
+⋆𐙚 ₊‎ ‎  he/vamp/ask ⟡ adult ⟡ transmasc ⟡ did alter sys ⟡ bisexual ⟡ taken <3 ⟡ digital artist ⟡ gamer ⟡ multishipper 
 
 C+H & INT any !! FEEL FREE TO INTERACT ME ANYTIME !! I DON'T BITE :3 PLEASE I NEED FRIENDS 💔 IM REALLY NICE TRUST!!
 
