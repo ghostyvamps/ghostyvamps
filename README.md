@@ -2,11 +2,11 @@
 
 ![](https://i.postimg.cc/RCPRXyfw/y6juve.png)
  
-  ![](https://files.catbox.moe/0mnjvi.gif)‎‎  he/him/his ⟡ vamp/vamps ⟡ ask 
+  ![](https://files.catbox.moe/0mnjvi.gif)‎‎  he/him/his ⟡ vamp/vamps ⟡ they/them/their ⟡ ask 
   
   ![](https://files.catbox.moe/0mnjvi.gif) adult ⟡ March 04
     
- ![](https://files.catbox.moe/0mnjvi.gif) transmasc ⟡ more preferably to use masc terms
+ ![](https://files.catbox.moe/0mnjvi.gif) transmasc ⟡ 
   
 ![](https://files.catbox.moe/0mnjvi.gif)  did alter system
    
