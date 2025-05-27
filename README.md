@@ -20,7 +20,7 @@
 
 ![](https://i.postimg.cc/7YfNc9Md/1pwi47.png)
 
-![](https://files.catbox.moe/f5dkkd.webp) C+H & INT any !! FEEL FREE TO INTERACT ME ANYTIME !!
+![](https://files.catbox.moe/f5dkkd.webp) C+H & INT any !!
 
 ![](https://files.catbox.moe/f5dkkd.webp) i'm offtab most of the time so if i don't respond back, please W2I ^_^
 
