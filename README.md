@@ -3,7 +3,7 @@
 
 ⋆𐙚 ₊‎ ‎  he/vamp/ask ⟡ adult ⟡ transmasc ⟡ did alter sys ⟡ bisexual ⟡ taken <3 ⟡ digital artist ⟡ gamer ⟡ multishipper 
 
-C+H & INT any !! FEEL FREE TO INTERACT ME ANYTIME !! I DON'T BITE :3 PLEASE I NEED FRIENDS 💔 IM REALLY NICE TRUST!!
+C+H & INT any !! FEEL FREE TO INTERACT ME ANYTIME !! I DON'T BITE :3 PLEASE I NEED FRIENDS 💔 IM REALLY NICE TRUST!! just don't be  a weirdo,,
 
 
 ![download](https://github.com/user-attachments/assets/145e5740-a8b0-4f6c-a754-c85520df82a1)
