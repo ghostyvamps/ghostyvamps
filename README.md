@@ -30,7 +30,7 @@
 
 ![](https://tomomi.neocities.org/pixeles/48.gif) more info can be found on [strawpage](https://ghostyvamps.straw.page)!!
 
-<img width="781" alt="Screenshot 2025-05-27 at 1 27 45 PM" src="https://github.com/user-attachments/assets/9813d359-77d2-4a01-9b77-4c9ae7ae0068" />
+<img width="603" alt="Screenshot 2025-05-27 at 9 20 47 PM" src="https://github.com/user-attachments/assets/7b8034fa-7823-4f6a-8ebd-ef0ba369fc4a" />
 
 this is my malewife btw trust ![](https://xyz.crd.co/assets/images/gallery18/dbcbb13f.gif?v=3263a73c)
 
