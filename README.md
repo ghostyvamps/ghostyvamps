@@ -1,11 +1,33 @@
-![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=503d7a&style=plastic&label=PROFILE+VISITS) 
+![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=f7baeb&style=plastic&label=PROFILE+VISITS) 
 
+![](https://i.postimg.cc/RCPRXyfw/y6juve.png)
+ 
+  ![](https://files.catbox.moe/0mnjvi.gif)‎‎  he/him/his ⟡ vamp/vamps ⟡ ask 
+  
+  ![](https://files.catbox.moe/0mnjvi.gif) adult ⟡ March 04
+    
+ ![](https://files.catbox.moe/0mnjvi.gif) transmasc ⟡ more preferably to use masc terms
+  
+![](https://files.catbox.moe/0mnjvi.gif)  did alter system
+   
+ ![](https://files.catbox.moe/0mnjvi.gif) bisexual ⟡ xenogender 
 
-⋆𐙚 ₊‎ ‎  he/vamp/ask ⟡ adult ⟡ transmasc ⟡ did alter sys ⟡ bisexual ⟡ taken <3 ⟡ digital artist ⟡ gamer ⟡ multishipper 
+![](https://files.catbox.moe/0mnjvi.gif) taken <3 05.08.25
 
-C+H & INT any !! FEEL FREE TO INTERACT ME ANYTIME !! I DON'T BITE :3 PLEASE I NEED FRIENDS 💔 IM REALLY NICE TRUST!! just don't be  a weirdo,,
+![](https://files.catbox.moe/0mnjvi.gif) digital artist ⟡ gamer ⟡ gif maker 
 
+![](https://files.catbox.moe/0mnjvi.gif) multishipper ⟡ i like all ships as long they are legal.
 
-![](https://i.pinimg.com/736x/8d/fd/62/8dfd624be56a42a8fe4402756e921bba.jpg)
+![](https://i.postimg.cc/7YfNc9Md/1pwi47.png)
+
+![](https://files.catbox.moe/f5dkkd.webp) C+H & INT any !! FEEL FREE TO INTERACT ME ANYTIME !!
+
+![](https://files.catbox.moe/f5dkkd.webp) i'm offtab most of the time so if i don't respond back, please W2I ^_^
+
+![](https://files.catbox.moe/f5dkkd.webp) please feel free to come up and interact with me anytime !! idm, everyone is welcome :3 
+
+<img width="781" alt="Screenshot 2025-05-27 at 1 27 45 PM" src="https://github.com/user-attachments/assets/9813d359-77d2-4a01-9b77-4c9ae7ae0068" />
 
 this is my malewife btw trust
+
+
