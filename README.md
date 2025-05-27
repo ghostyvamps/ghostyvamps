@@ -12,7 +12,7 @@
    
  ![](https://files.catbox.moe/0mnjvi.gif) bisexual ⟡ xenogender 
 
-![](https://files.catbox.moe/0mnjvi.gif) taken <3 05.08.25
+![](https://files.catbox.moe/0mnjvi.gif) taken <3 05.08.25 ![](https://yokai.crd.co/assets/images/gallery12/31f35c75.gif?v=b4df531c)
 
 ![](https://files.catbox.moe/0mnjvi.gif) digital artist ⟡ gamer ⟡ gif maker 
 
