@@ -2,7 +2,7 @@
 
 ![](https://i.postimg.cc/RCPRXyfw/y6juve.png)
  
-  ![](https://files.catbox.moe/0mnjvi.gif)‎‎  he/him/his ⟡ vamp/vamps ⟡ they/them/their ⟡ ask 
+  ![](https://files.catbox.moe/0mnjvi.gif)‎‎  he/him/his ⟡ they/them/their ⟡ vamp/vamps ⟡ ask
   
   ![](https://files.catbox.moe/0mnjvi.gif) adult ⟡ March 04
     
