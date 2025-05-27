@@ -8,7 +8,7 @@
     
  ![](https://files.catbox.moe/0mnjvi.gif) transftm 
   
-![](https://files.catbox.moe/0mnjvi.gif)  did alter system
+![](https://files.catbox.moe/0mnjvi.gif)  did alter [system](https://neurodiversity.fandom.com/wiki/System)
    
  ![](https://files.catbox.moe/0mnjvi.gif) bisexual ⟡ xenogender 
 
