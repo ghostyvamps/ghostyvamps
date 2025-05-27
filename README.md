@@ -6,6 +6,4 @@
 C+H & INT any !! FEEL FREE TO INTERACT ME ANYTIME !! I DON'T BITE :3 PLEASE I NEED FRIENDS 💔 IM REALLY NICE TRUST!! just don't be  a weirdo,,
 
 
-![download](https://github.com/user-attachments/assets/145e5740-a8b0-4f6c-a754-c85520df82a1)
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=47E1F7&width=435&lines=JOJO%2C+THIS+IS+THE+LAST+OF+MY+HAMOOON!;TAKE+IT+FROM+MEEEEEE!)](https://git.io/typing-svg)
+![](https://i.pinimg.com/736x/8d/fd/62/8dfd624be56a42a8fe4402756e921bba.jpg)
