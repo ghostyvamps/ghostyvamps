@@ -4,7 +4,7 @@
  
   ![](https://files.catbox.moe/0mnjvi.gif)‎‎  he/him/his ⟡ they/them/their ⟡ vamp/vamps ⟡ ask
   
-  ![](https://files.catbox.moe/0mnjvi.gif) adult ⟡ 03.04.07
+  ![](https://files.catbox.moe/0mnjvi.gif) adult 
     
  ![](https://files.catbox.moe/0mnjvi.gif) transftm 
   
