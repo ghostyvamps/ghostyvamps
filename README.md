@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=285199&style=plastic&label=PROFILE+VISITS) 
+![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=fcd844&style=plastic&label=PROFILE+VISITS) 
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkywcxedvxgneeo25mapb5xez4&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkywcxedvxgneeo25mapb5xez4&redirect=true)
