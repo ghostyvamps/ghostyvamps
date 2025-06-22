@@ -9,4 +9,4 @@
 
 (𝕡.𝕤 𝕪𝕠𝕦 𝕔𝕒𝕟 𝕕𝕣𝕒𝕨 𝕒𝕟𝕪𝕥𝕙𝕚𝕟𝕘, 𝕚𝕕𝕞 !!)
 
-![](https://media1.tenor.com/m/Y3XKMYgvjhMAAAAC/gaming-meme.gif)
+![](https://i.pinimg.com/736x/3f/b4/e6/3fb4e63d5b8ff4a31c416585b9892401.jpg)
