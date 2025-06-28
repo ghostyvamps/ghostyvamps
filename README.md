@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=8a190a&style=plastic&label=VISITORS+🎪) 
+![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=f5d849&style=plastic&label=VISITORS+🎪) 
 
 ![Untitled1_20250628181126](https://github.com/user-attachments/assets/d7b45f13-4d83-4ff8-ab7b-ef03832d1259)
 creds: me (DNS / DNC)
