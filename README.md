@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=f5d849&style=plastic&label=VISITORS) 
 
-![Untitled1_20250628181126](https://github.com/user-attachments/assets/d7b45f13-4d83-4ff8-ab7b-ef03832d1259)
-creds: me (DNS / DNC)
+![image](https://github.com/user-attachments/assets/6b215633-3732-49ac-93f9-dfb2efc9810b)
+
 
 
 ![blinkiesCafe-G3](https://github.com/user-attachments/assets/ba81b582-4514-4828-b8ea-ca1c525d161c) ![download (1)](https://github.com/user-attachments/assets/f27c8e14-476d-4700-b015-6da3c4b1c957)
@@ -11,6 +11,7 @@ creds: me (DNS / DNC)
 
 ![](https://media.tenor.com/tthHOe_qi9IAAAAi/yellow-heart-pixel-divider.gif)
 
-![download](https://github.com/user-attachments/assets/9483b890-8a91-4bfc-b4ca-f136c339331d)
+![image](https://github.com/user-attachments/assets/3071450e-7897-481a-93cc-a38fcc648a23)
+
 
 ![download (3)](https://github.com/user-attachments/assets/d47aed5c-8301-4920-a5ed-ea22388fe150)
