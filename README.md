@@ -1,8 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=f5d849&style=plastic&label=VISITORS) 
 
-![image](https://github.com/user-attachments/assets/6b215633-3732-49ac-93f9-dfb2efc9810b)
-
-
+![image](https://github.com/user-attachments/assets/c8ab2e3d-96a9-425a-b11e-bcb3a04db167)
 
 ![blinkiesCafe-G3](https://github.com/user-attachments/assets/ba81b582-4514-4828-b8ea-ca1c525d161c) ![download (1)](https://github.com/user-attachments/assets/f27c8e14-476d-4700-b015-6da3c4b1c957)
 
