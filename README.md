@@ -1,6 +1,6 @@
-![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=f5d849&style=plastic&label=VISITORS) 
+![](https://komarev.com/ghpvc/?username=ghostlyvamps&color=304c78&style=plastic&label=FANS) 
 
-<img width="1582" height="1000" alt="image" src="https://github.com/user-attachments/assets/f52ab8d8-edd4-4284-957b-cfbf09a5e831" />
+<img width="1582" height="1000" alt="Untitled15_20250702181340" src="https://github.com/user-attachments/assets/8f0e1265-557a-46ac-a393-ffed8fcf3f1e" />
 
 
 ![blinkiesCafe-G3](https://github.com/user-attachments/assets/ba81b582-4514-4828-b8ea-ca1c525d161c) 
